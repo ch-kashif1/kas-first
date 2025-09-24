@@ -1,2 +1,2 @@
 # kas-first
-# 🚀 “Code likhte likhte khud ko likhna seekh gaye, har project me apna ek hissa chhod gaye.”
+# 💔 My life without you is just like code without logic — it runs, but it has no meaning.
